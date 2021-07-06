@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ashwin-2000
-- 👀 I’m interested in Everything that Computer Does ;)
+- 👀 I’m interested in Learning and Coding ;)
 - 📫 How to reach me - sashwinbalaji2000@gmail.com
 
 <!---
